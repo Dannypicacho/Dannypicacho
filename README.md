@@ -1,6 +1,6 @@
 - 🧍‍♂️ Danny Picazo
 - 💻 Software Engineering Major
-- 🎮 Dannypicacho#8187 (Discord)
+- 🎮 @dannypicacho (Discord)
 - 📫 dannypicacho18@gmail.com
 
 <!---
